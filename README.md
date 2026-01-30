@@ -1,1 +1,1 @@
-<img width="460" height="460" src="https://files.catbox.moe/klv65s.png">
+<img width="300" height="400" src="https://files.catbox.moe/klv65s.png">
