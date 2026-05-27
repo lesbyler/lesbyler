@@ -2,4 +2,4 @@
 𝖭𝗈𝗍 𝖻𝖾𝗍𝗐𝖾𝖾𝗇 𝗀𝗈𝗈𝖽 𝖺𝗇𝖽 𝖾𝗏𝗂𝗅, 𝖨 𝖼𝗈𝗎𝗅𝖽 𝗇𝖾𝗏𝖾𝗋 𝖻𝖾 𝗌𝗈𝗆𝖾𝗍𝗁𝗂𝗇𝗀 𝗅𝗂𝗄𝖾 𝗒𝗈𝗎,
 𝖻𝗎𝗍 𝖻𝖾𝗍𝗐𝖾𝖾𝗇 "𝗅𝖺𝗐" 𝖺𝗇𝖽 "𝗃𝗎𝗌𝗍𝗂𝖼𝖾"
 
-[gift <3](https://rentry.co/IesbyIer)
+[gift <3](https://rentry.co/IesbyIer) (outdated :P)
