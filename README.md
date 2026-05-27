@@ -1,2 +1,1 @@
-<img width="300" height="400" src="https://files.catbox.moe/3febu6.png">
-
+As a paladin, I walk on a razor's edge. Not between good and evil, I could never be something like you, but between "law" and "justice"
