@@ -1,3 +1,5 @@
-As a paladin, I walk on a razor's edge. Not between good and evil, I could never be something like you, but between "law" and "justice"
+𝖠𝗌 𝖺 𝗉𝖺𝗅𝖺𝖽𝗂𝗇, 𝖨 𝗐𝖺𝗅𝗄 𝗈𝗇 𝖺 𝗋𝖺𝗓𝗈𝗋'𝗌 𝖾𝖽𝗀𝖾.
+𝖭𝗈𝗍 𝖻𝖾𝗍𝗐𝖾𝖾𝗇 𝗀𝗈𝗈𝖽 𝖺𝗇𝖽 𝖾𝗏𝗂𝗅, 𝖨 𝖼𝗈𝗎𝗅𝖽 𝗇𝖾𝗏𝖾𝗋 𝖻𝖾 𝗌𝗈𝗆𝖾𝗍𝗁𝗂𝗇𝗀 𝗅𝗂𝗄𝖾 𝗒𝗈𝗎,
+𝖻𝗎𝗍 𝖻𝖾𝗍𝗐𝖾𝖾𝗇 "𝗅𝖺𝗐" 𝖺𝗇𝖽 "𝗃𝗎𝗌𝗍𝗂𝖼𝖾"
 
 [gift <3](https://rentry.co/IesbyIer)
